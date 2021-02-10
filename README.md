@@ -2,4 +2,5 @@
 
 Lebih giat belajar
 Menjadi lebih baik dari sebelumnya
-Dapat Menguasai HTML
+Menjadi pribadi yang lebih baik
+Tidak menunda-nunda pekerjaan
