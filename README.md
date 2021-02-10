@@ -1,2 +1,5 @@
 # Resolusi
-Resolution
+
+Lebih giat belajar
+Menjadi lebih baik dari sebelumnya
+Menguasai HTML
